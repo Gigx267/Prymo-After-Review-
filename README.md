@@ -1,2 +1,4 @@
 # Prymo-After-Review-
 Our Mission is Simple Provide Abuja Residents with the Freshest and Highest-quality Meats Available
+Welcome to Prymo Meat Store the premier destination for quality meats in Abuja. Established with a passion for exceptional taste and uncompromising quality.Prymo has become the go-to place for meat lovers and culinary enthusiasts alike. Prymo Meat Store/Butchery is not just a place to purchase meat; it's an experience. We are committed to providing exceptional products, outstanding service, and an overall delightful shopping experience.
+At Prymo, we understand the importance of food safety and hygiene. We adhere to stringent standards to ensure that our products meet the highest quality and safety regulations. From the moment our meats arrive at our store to the time they reach your plate , we maintain strict temperature controls and follow industry best practices to guarantee freshness and flavor.
